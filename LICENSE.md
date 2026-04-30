@@ -1,4 +1,4 @@
-
+stealth Scripts for minecraft is the best minecraft Script, featuring unlimited stamina and silent aim. Safe and powerful for all your needs.
 
 
 
